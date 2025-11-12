@@ -172,7 +172,7 @@ Sí todas nuestras cerraduras tienen la opción de ingresar a varios usuarios a 
 El freno hidráulico DT-2300 cumple la funcionalidad para ser usado en puertas con alto tráfico.
 
 20.	¿Tienen kits de instalación para cerraduras digitales?
-Nuestras cerraduras vienen con manual de instalación una plantilla de instalación, además contamos con servicio de instalación de cerraduras digitales.
+Nuestras cerraduras vienen con manual de instalación una plantilla de instalación, además contamos con servicio de instalación de cerraduras digitales con tiempo promedio de instalación de 3 horas.
 
 21. Servicio de copia de llaves:
 Realizamos duplicados de llaves en nuestro local.[ADJUNTAR URL DEL PRODCUTO] El precio indicado es por cada llave copiada[ADJUNTAR PRECIO TRAÍDO DE LA URL DEL PRODUCTO].
@@ -204,7 +204,7 @@ La funcionalidad del rodamiento en una bisagra es el desgaste al uso, con rodami
 Se recomienda que la instalación sea por una persona calificada y experta en instalaciones de barras antipánico, nosotros igual contamos con servicio de instalación Scanavini.
 
 28.	¿El servicio de instalación de cerraduras incluye la garantía del producto?
-Sí todo servicio que brindamos viene con garantía.
+Sí todo servicio que brindamos viene con garantía, recordar que el tiempo promedio de la instalción de cerraduras es de 3 horas.
 
 29.	¿Puedo instalar una cerradura digital en una puerta corredera?
 Las cerraduras digitales no son para puertas correderas, solo para puertas de abatir.
@@ -234,7 +234,7 @@ Podríamos evaluar si es posible la instalación en su puerta enviando una foto 
 Todas nuestras bisagras son para puertas de madera.
 
 7.	¿Cuánto tiempo demora la instalación de una cerradura digital?
-Con nuestro servicio de instalación el instalador se demora aproximadamente 1 hora y media como máximo en la instalación y programación.
+Con nuestro servicio de instalación el instalador se demora aproximadamente 3 horas como máximo en la instalación y programación.
 
 8.	¿Ofrecen asesoría para la instalación de productos?
 Sí, a través de nuestro servicio técnico y asesoría por teléfono.
